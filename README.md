@@ -16,4 +16,4 @@ Responsable,Proactivo siempre en busqueda de retos nuevos
 - Contratiempo
 
 ### Descripción de la foto:
-![doge](C:\Users\mlorenzo\Downloads\matias-lorenzo-main.zip\matias-lorenzo-main.jpg)
+![doge](What-is-Dogecoin-Meme.jpg)
